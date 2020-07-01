@@ -10,7 +10,7 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Aristia+ edit RyuK](https://download1642.mediafire.com/xwevs8y6vcsg/fmmuq6020lb8sda/Aristia%28Edit%29%2Btrail.osk)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
 
-# [Vaxei 404](https://joofixd.s-ul.eu/Ia93XGt5)
+# [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
 DM me on discord if I'm forgetting a skin DevenRam#0855.
