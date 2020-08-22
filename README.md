@@ -17,3 +17,6 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
 DM me on discord if I'm forgetting a skin DevenRam#0855.
+Known issues with the list:
+1. Jace 6.25 not included (waiting for mrekk to respond to me about whether or not I should include it)
+2. Seoul v9 Personal skin not included (see #1's note)
