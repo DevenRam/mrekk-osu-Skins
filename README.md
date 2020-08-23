@@ -22,6 +22,9 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
+# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
+![](https://osu.ppy.sh/ss/15436713/7524)
+
 DM me on discord if I'm forgetting a skin DevenRam#0855.
 
 
