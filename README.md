@@ -28,4 +28,5 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 
 DM me on discord if I'm forgetting a skin DevenRam#0855.
 
-
+Known missing skins at the moment:
+None :)
