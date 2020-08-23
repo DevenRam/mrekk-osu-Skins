@@ -13,6 +13,9 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Seoul v9 Personal Skin](https://shigeskinss.s-ul.eu/csrv6H29)
 ![](https://i.imgur.com/RBEwdpq.png)
 
+# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
+![](https://osu.ppy.sh/ss/15436713/7524)
+
 # [RyuK boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://camo.githubusercontent.com/1baf3104e3be52fbdae1c27a8ed9b55073d0459e/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
 
@@ -22,8 +25,6 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
-# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
-![](https://osu.ppy.sh/ss/15436713/7524)
 
 DM me on discord if I'm forgetting a skin DevenRam#0855.
 
