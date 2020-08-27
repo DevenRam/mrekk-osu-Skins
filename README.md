@@ -7,7 +7,7 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
-# [Crystalized Cookie v1.5](https://drive.google.com/u/0/uc?export=download&confirm=AiqD&id=1eooqrdPInUnSIiWiEQuMFoszMgOmivqM)
+# [Dracula (old)](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537800520_oqggtfn.jpg)
 
 # [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
