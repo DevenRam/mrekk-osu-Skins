@@ -7,8 +7,8 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
-# [Crystalized Cookie v1.5](https://drive.google.com/uc?export=download&id=1CCg5Dk_GNknnoxV8F9QqNIFD9FnhMqcd)
-![](https://osuskins.net/screenshots/Il3zzhU.jpg)
+# [Crystalized Cookie](https://drive.google.com/uc?export=download&id=1NRLGkUrUPw5jrLQSI3fXQXcuiA4roamP)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537800457_kjsr0sh.jpg)
 
 # [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
 ![](https://skins.osuck.net/uploads/posts/2019-07/1563799041_3.jpg)
