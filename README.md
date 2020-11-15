@@ -29,8 +29,8 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
 
-DM me on discord if I'm forgetting a skin DevenRam#0855.
+DM me on discord if I'm forgetting a skin other than those mentioned below. DevenRam#0855
 
 Known missing skins at the moment:
+FlyingTuna - I'm not putting this on since it's a well known skin associated with a player other than mrekk.  Just google for it if you want Tuna's skin.
 
-None :)
