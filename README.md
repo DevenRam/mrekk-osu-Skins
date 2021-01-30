@@ -1,8 +1,9 @@
 # mrekk-osu-Skins
 mrekk's osu! skins. List updated and maintained by DevenRam.
 
-# [Mrekk 〘 1.0 〙](https://drive.google.com/drive/folders/1TJsUgsGxQtQyByZzKHtnrRksEtbyld6g)
-Other variations in this link as well.
+# [- # Mrekk 〘 1.0 〙【FY】](https://drive.google.com/uc?export=download&id=11VY0ResQ2AT-48AhAHsGyOvu9jaPGHP5)
+[- # Mrekk 〘 1.0 〙【DT】](https://drive.google.com/uc?export=download&id=1zpB8L-wE9HJbDLvDKh--g8n2QMJCDuAi)
+[- # Mrekk 〘 1.0 〙【NM】](https://drive.google.com/uc?export=download&id=1KyfzDBexpJuncrHrVJ5ETZrH3_2IbGYy)
 ![](https://skins.osuck.net/uploads/posts/2021-01/1611739146_screenshot9120.jpg)
 
 # [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
