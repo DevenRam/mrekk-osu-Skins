@@ -2,6 +2,7 @@
 mrekk's osu! skins. List updated and maintained by DevenRam.
 
 # [Mrekk 〘 1.0 〙](https://drive.google.com/drive/folders/1TJsUgsGxQtQyByZzKHtnrRksEtbyld6g)
+Other variations in this link as well.
 ![](https://skins.osuck.net/uploads/posts/2021-01/1611739146_screenshot9120.jpg)
 
 # [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
