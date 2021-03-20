@@ -6,7 +6,7 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 [- # Mrekk (2.0) «NM» #](https://drive.google.com/uc?export=download&id=1G9_uXY4cCtpKbGjt_zzrPTRY-isCuqUK)
 ![](https://i.imgur.com/jydYbHP.png)
 
-# [Rafis HDDT](https://drive.google.com/u/0/uc?export=download&confirm=e5ti&id=1x21RntTvG_XLiz7SFXuFIQc6NWuOOfsf)
+# [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
 
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
