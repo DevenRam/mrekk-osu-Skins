@@ -33,6 +33,9 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
+# [Monoko2k Rektygon Edit](https://joofixd.s-ul.eu/Ia93XGt5)
+![](https://monko.s-ul.eu/8PR7w1pm)
+
 # [- # Mrekk 〘 1.0 〙【FY】](https://drive.google.com/uc?export=download&id=11VY0ResQ2AT-48AhAHsGyOvu9jaPGHP5)
 [- # Mrekk 〘 1.0 〙【DT】](https://drive.google.com/uc?export=download&id=1zpB8L-wE9HJbDLvDKh--g8n2QMJCDuAi)\
 [- # Mrekk 〘 1.0 〙【NM】](https://drive.google.com/uc?export=download&id=1KyfzDBexpJuncrHrVJ5ETZrH3_2IbGYy)
