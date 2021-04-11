@@ -34,10 +34,10 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 ![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
 
 # [Abyssal 2018-06-15](https://osuskins.net/download/uqQipHZ)
-![](https://monko.s-ul.eu/8PR7w1pm)
+![](https://osuskins.net/screenshots/uqQipHZ.jpg)
 
-# [Monoko2k Rektygon Edit](https://joofixd.s-ul.eu/Ia93XGt5)
-![](https://monko.s-ul.eu/8PR7w1pm)
+# [Monoko2k Rektygon Edit](https://monko.s-ul.eu/8PR7w1pm)
+![](https://media.discordapp.net/attachments/744743301931859999/830915759152300142/unknown.png?width=1630&height=917)
 
 # [- # Mrekk 〘 1.0 〙【FY】](https://drive.google.com/uc?export=download&id=11VY0ResQ2AT-48AhAHsGyOvu9jaPGHP5)
 [- # Mrekk 〘 1.0 〙【DT】](https://drive.google.com/uc?export=download&id=1zpB8L-wE9HJbDLvDKh--g8n2QMJCDuAi)\
