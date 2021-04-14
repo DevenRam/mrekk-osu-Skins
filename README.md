@@ -36,7 +36,7 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Abyssal 2018-06-15](https://osuskins.net/download/uqQipHZ)
 ![](https://osuskins.net/screenshots/uqQipHZ.jpg)
 
-# [Monoko2k Rektygon Edit](https://monko.s-ul.eu/8PR7w1pm)
+# [Monko Kamui (monko2k skin)](https://monko.s-ul.eu/8PR7w1pm)
 ![](https://media.discordapp.net/attachments/744743301931859999/830915759152300142/unknown.png?width=1630&height=917)
 
 # [- # Mrekk 〘 1.0 〙【FY】](https://drive.google.com/uc?export=download&id=11VY0ResQ2AT-48AhAHsGyOvu9jaPGHP5)
