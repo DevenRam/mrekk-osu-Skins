@@ -1,5 +1,5 @@
 # mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by DevenRam.
+mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if I'm forgetting a skin DevenRam#0855
 
 # [- # Mrekk (2.0) «FY» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
 [- # Mrekk (2.0) «DT» #](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
@@ -46,6 +46,4 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 [- # Mrekk 〘 1.0 〙【DT】](https://drive.google.com/uc?export=download&id=1zpB8L-wE9HJbDLvDKh--g8n2QMJCDuAi)\
 [- # Mrekk 〘 1.0 〙【NM】](https://drive.google.com/uc?export=download&id=1KyfzDBexpJuncrHrVJ5ETZrH3_2IbGYy)
 ![](https://skins.osuck.net/uploads/posts/2021-01/1611739146_screenshot9120.jpg)
-
-DM me on discord if I'm forgetting a skin other than those mentioned below. DevenRam#0855
 
