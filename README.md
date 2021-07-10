@@ -9,6 +9,9 @@ mrekk's osu! skins. List updated and maintained by DevenRam.
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
 
+# [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
+![](https://osu.ppy.sh/ss/16816850/4d8c)
+
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
