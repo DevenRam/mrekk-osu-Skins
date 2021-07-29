@@ -2,7 +2,7 @@
 mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if I'm forgetting a skin DevenRam#0855
 
 # [【Mrekk 3.0】by Flowfy](https://drive.google.com/drive/folders/1EHVtAgYXxVdrULyELs_Sn15BBhRQjjdY)
-All versions linked here
+All variants included in the google drive link above.
 ![](https://i.imgur.com/FoMbCzw.png)
 
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
