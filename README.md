@@ -18,14 +18,17 @@ All variants included in the google drive link above.
 vv idke trail, and old yellow cursor in the cursor folder.
 ![](https://i.imgur.com/1mVGsiY.png)
 
+# [《CK》 Bacon boi 1.0 『blue』](https://joofixd.s-ul.eu/Idc2Mdek)
+![](![image](https://user-images.githubusercontent.com/47702237/179339904-eb325c4a-6daa-4c77-9ada-d14b1ccb82f1.png)
+
 # [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
 ![](https://i.imgur.com/8tXwDP0.jpg)
 
 # [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
 ![](https://i.imgur.com/Vv4Jgr1.png)
 
-
-
+# [- 《CK》 WhiteCat 2.1 ~ old](https://www.mediafire.com/file/slctyhdrt8q7mhw/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old.osk/file)
+![](https://i.imgur.com/rZckbMN.png)
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
