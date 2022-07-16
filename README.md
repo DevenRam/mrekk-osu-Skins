@@ -27,6 +27,8 @@ vv idke trail, and old yellow cursor in the cursor folder.
 # [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
 ![](https://i.imgur.com/Vv4Jgr1.png)
 
+White Cursor download link (https://drive.google.com/drive/folders/1EYv4s6YAJBmIknfP72TzSvjmUBRuc4Sh)
+
 # [- 《CK》 WhiteCat 2.1 ~ old](https://www.mediafire.com/file/slctyhdrt8q7mhw/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old.osk/file)
 ![](https://i.imgur.com/rZckbMN.png)
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
