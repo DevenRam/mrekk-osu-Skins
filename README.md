@@ -5,6 +5,13 @@ mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if
 All variants included in the google drive link above.
 ![](https://i.imgur.com/FoMbCzw.png)
 
+# [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
+![](https://imgur.com/a/PjWe1nk)
+
+
+
+
+
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
 
