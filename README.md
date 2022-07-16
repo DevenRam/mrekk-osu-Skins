@@ -5,17 +5,26 @@ mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if
 All variants included in the google drive link above.
 ![](https://i.imgur.com/FoMbCzw.png)
 
-# [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
-![](https://ibb.co/9Hf1Xf4)
+# [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM)
+![](https://camo.githubusercontent.com/a5fb97edd4ab9f0c0a8f28141cbfe51f9303eb4e0754c3db2e650d3544fc9020/68747470733a2f2f6f73752e7070792e73682f73732f3131383630393836)
 
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
 
-# [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
-![](https://osu.ppy.sh/ss/16816850/4d8c)
+# [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
+![](https://i.imgur.com/HFnVQJx.png)
+
+# [Aristia(Edit) + mrekk](https://drive.google.com/file/d/1nZkbsWjfDXJu9-VONuZV_DiYOjteMW25/view)
+vv idke trail, and old yellow cursor in the cursor folder.
+![](https://i.imgur.com/1mVGsiY.png)
 
 # [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
 ![](https://i.imgur.com/8tXwDP0.jpg)
+
+# [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
+![](https://i.imgur.com/Vv4Jgr1.png)
+
+
 
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
