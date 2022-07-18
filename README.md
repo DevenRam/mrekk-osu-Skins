@@ -14,6 +14,9 @@ All variants included in the google drive link above.
 # [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
 ![](https://i.imgur.com/HFnVQJx.png)
 
+# [xact (maliszewski edit)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
+![](https://osu.ppy.sh/ss/17982547/d29a)
+
 # [Aristia(Edit) + mrekk](https://drive.google.com/file/d/1nZkbsWjfDXJu9-VONuZV_DiYOjteMW25/view)
 vv idke trail, and old yellow cursor in the cursor folder.
 ![](https://i.imgur.com/1mVGsiY.png)
