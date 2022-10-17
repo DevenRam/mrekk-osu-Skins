@@ -5,6 +5,9 @@ mrekk's osu! skins. List updated and maintained by broiiler. DM me on discord if
 All variants included in the google drive link above.
 ![](https://i.imgur.com/FoMbCzw.png)
 
+# [Rafis but SZ](https://mega.nz/file/nldlHYBa#oEZflF9oFj2BnmV4y5O2Jgp8wDd4aqvONfO029zWd3c)
+![](https://i.imgur.com/JJzb9Jk.png)
+
 # [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM)
 ![](https://camo.githubusercontent.com/a5fb97edd4ab9f0c0a8f28141cbfe51f9303eb4e0754c3db2e650d3544fc9020/68747470733a2f2f6f73752e7070792e73682f73732f3131383630393836)
 
