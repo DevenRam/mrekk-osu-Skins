@@ -27,7 +27,7 @@ vv idke trail, and old yellow cursor in the cursor folder.
 # [《CK》 Bacon boi 1.0 『blue』](https://joofixd.s-ul.eu/Idc2Mdek)
 ![](![image](https://user-images.githubusercontent.com/47702237/179339904-eb325c4a-6daa-4c77-9ada-d14b1ccb82f1.png)
 
-# [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
+# [Monko Edit](https://rektygon.s-ul.eu/LpO3ZXOQ)
 ![](https://i.imgur.com/8tXwDP0.jpg)
 
 # [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
