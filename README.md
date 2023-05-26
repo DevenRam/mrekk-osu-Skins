@@ -1,19 +1,42 @@
 # mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by DevenRam. DM me on discord if I'm forgetting a skin DevenRam#0855
+mrekk's osu! skins. List updated and maintained by broiiler. DM me on discord if I'm forgetting a skin broiiler#4200.
 
 # [【Mrekk 3.0】by Flowfy](https://drive.google.com/drive/folders/1H_KeIKxLPdFMkkehJIU4C_43kth-U9wk)
 All variants included in the google drive link above.
 ![](https://i.imgur.com/FoMbCzw.png)
 
+# [Rafis but SZ](https://mega.nz/file/nldlHYBa#oEZflF9oFj2BnmV4y5O2Jgp8wDd4aqvONfO029zWd3c)
+![](https://i.imgur.com/JJzb9Jk.png)
+
+# [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM)
+![](https://camo.githubusercontent.com/a5fb97edd4ab9f0c0a8f28141cbfe51f9303eb4e0754c3db2e650d3544fc9020/68747470733a2f2f6f73752e7070792e73682f73732f3131383630393836)
+
 # [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
 ![](https://i.imgur.com/YULitvx.png)
 
-# [Aristia+ edit +mReKk](https://drive.google.com/file/d/1dVIq3CLLxVQkpvglgFAC2xl24-XzLm6R/view)
-![](https://osu.ppy.sh/ss/16816850/4d8c)
+# [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
+![](https://i.imgur.com/HFnVQJx.png)
 
-# [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
+# [xact (maliszewski edit)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
+![](https://osu.ppy.sh/ss/17982547/d29a)
+
+# [Aristia(Edit) + mrekk](https://drive.google.com/file/d/1nZkbsWjfDXJu9-VONuZV_DiYOjteMW25/view)
+vv idke trail, and old yellow cursor in the cursor folder.
+![](https://i.imgur.com/1mVGsiY.png)
+
+# [《CK》 Bacon boi 1.0 『blue』](https://joofixd.s-ul.eu/Idc2Mdek)
+![](![image](https://user-images.githubusercontent.com/47702237/179339904-eb325c4a-6daa-4c77-9ada-d14b1ccb82f1.png)
+
+# [Monko Edit](https://rektygon.s-ul.eu/LpO3ZXOQ)
 ![](https://i.imgur.com/8tXwDP0.jpg)
 
+# [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
+![](https://i.imgur.com/Vv4Jgr1.png)
+
+# [White Cursor download link](https://drive.google.com/drive/folders/1EYv4s6YAJBmIknfP72TzSvjmUBRuc4Sh)
+
+# [- 《CK》 WhiteCat 2.1 ~ old](https://www.mediafire.com/file/slctyhdrt8q7mhw/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old.osk/file)
+![](https://i.imgur.com/rZckbMN.png)
 # [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
 ![](https://i.imgur.com/o9VRoFm.png)
 
