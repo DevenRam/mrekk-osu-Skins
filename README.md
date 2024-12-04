@@ -1,5 +1,5 @@
 # mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by DevenRam and broiiler. DM us on discord if I'm forgetting a skin @devenram @broiler.
+mrekk's osu! skins. List updated and maintained by DevenRam and broiiler. DM us on discord if I'm forgetting a skin @devenram @broiler. To message without sending a friend request, join [mrekk's Discord server](https://discord.gg/mrekk). 
 
 # [【Mrekk 3.0】by Flowfy](https://drive.google.com/drive/folders/1H_KeIKxLPdFMkkehJIU4C_43kth-U9wk)
 All variants included in the google drive link above.
